@@ -12,16 +12,12 @@ call me kat if you and i are strangers , otherwise i use ivy ᓚ₍ ^. .^₎
     <p align="center">
 she/her/they/them for pronouns !
       <p align="center">
-mostly afk or off-tab doing bullsh- (ㆆ_ㆆ)
+mostly afk or off-tab btw , slow rep prob
           <p align="center">
-hobbies: drawing, crafting, playing games, listening to music, reading, etc.
-              <p align="center">
-                  BONUS!
+i love love love drawing hihi
 <p align="center">
     song on repeat rn: Creatures in Heaven by Glass Animals
-         <p align="center"> 
-           if you like young adult thrillers, i suggest karen m. mcmanus and holly jackson's books! mind-blowing plot TRUST
-              <p align="center">
+        <p align="center">
                       ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
                       <p align="center">  
                       STATUS
@@ -43,17 +39,15 @@ LIMITATIONS/BOUNDARIES (important.)
 <p align="center">
 DNI if basic dni criteria...
 <p align="center">
-+) pedo . or you intend to have NSFW content related that goes way too far (personally dont want to know how you goon or your sexlife). i am very aware and please go away . 
-    <p align="center">
-        SEX JOKES OR BEING FREAKY IS OK, JUST KNOW THE LIMIT AND WHEN TO STOP. ദ്ദി◝ ⩊ ◜.ᐟ
++) pedo . sex jokes are fine unless it goes too far.
 <p align="center">
-+) you ship proships . do i have to explain ?
++) proships . self-explanatory
 <p align="center">
-please respect all the ships i like. if you cant , you oughta block me or ignore me. 
+please respect all the ships i like. i block freely 
 <p align="center">
 just in case, im a multishipper and im positive that whatever ship you enjoy, i do too ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
 <p align="center"> 
-    +) you are under the age of 13 . 
+    +) under 12 or older 20 . 
      <p align="center">  
 WARNING: i am very sensitive so please mind your words. even the slightest can cut deep. ദ്ദി ༎ຶ‿༎ຶ )
 
