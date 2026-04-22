@@ -47,7 +47,7 @@ please respect all the ships i like. i block freely
 <p align="center">
 just in case, im a multishipper and im positive that whatever ship you enjoy, i do too ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
 <p align="center"> 
-    +) under 12 or older 20 . 
+    +) under 13 or older 20 . 
      <p align="center">  
 WARNING: i am very sensitive so please mind your words. even the slightest can cut deep. ദ്ദി ༎ຶ‿༎ຶ )
 
