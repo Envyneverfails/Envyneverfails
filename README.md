@@ -14,8 +14,10 @@ she/her/they/them for pronouns !
       <p align="center">
 mostly afk or off-tab btw , slow rep prob
 <p align="center">
-    song on repeat rn: Creatures in Heaven by Glass Animals
+    song on repeat rn: Aint it fun by Paramore
         <p align="center">
+            sp92(4)6 9w1
+            <p align="center">
                       ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
                       <p align="center">  
                       STATUS
