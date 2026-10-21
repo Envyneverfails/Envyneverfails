@@ -16,7 +16,9 @@ mostly afk or off-tab btw , slow rep prob
 <p align="center">
     song on repeat rn: Aint it fun by Paramore
         <p align="center">
-            sp92(4)6 9w1
+            sp92(4)6 9w1 . once mistyped as a sp6
+            <p align="center">
+                wants to be like my dear sister (so837)
             <p align="center">
                       ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
                       <p align="center">  
